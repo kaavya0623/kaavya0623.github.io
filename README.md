@@ -19,7 +19,6 @@
       <li>1/4th cup of pasta water</li>
       <li>Optional-Meat of choice</li>
     </ul>
-  <img src="https://www.istockphoto.com/photo/hotteok-sweet-korean-pancakes-ingredients-on-a-wooden-table-gm1680795828-536666496?utm_campaign=srp_photos_top&utm_content=https%3A%2F%2Funsplash.com%2Fs%2Fphotos%2Fingredients&utm_medium=affiliate&utm_source=unsplash&utm_term=ingredients%3A%3Areduced-affiliates%3Acontrol">
   <h1>Making the Sauce</h1>
     </ul><p>While waiting for your pasta to boil, start prepping your sauce. Take a pan, pour in your oil, onions, garlic, and seasoning. Let sautee.<br></br>After sauteed. add in tomato paste, bring heat to high, and let sit till the paste <strong>begins to shrink</strong>.<br></br> Once shrunk, slowly pour in your heavy whipping cream and mix until combined.</p>
     <p>Personally, I like to add cheese to my sauce for taste, but it is not necessary. After the sauce is made, take the starchy water from the boiling pasta and add to your sauce. This works as a thickener.</p>
